@@ -1,1 +1,1 @@
-# Ol-esse-aqui-meu-curiculo-
+olá esse aqui é meu curriculo 
